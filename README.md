@@ -1,0 +1,3 @@
+- 👋 Oiiii, Eu sou @JohnVictor67
+- 🌱 Eu estou aprendendo a desenvolver Jogos
+- 😄 Pronomes: Ele/Dele
